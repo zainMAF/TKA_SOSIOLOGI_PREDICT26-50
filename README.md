@@ -1,0 +1,2 @@
+# TKA_SOSIOLOGI_PREDICT26-50
+Soal TKA Sosiologi 2
